@@ -12,3 +12,6 @@
 高级版本下载连接：https://wtauto-1258844166.cos.ap-beijing.myqcloud.com/WTauto20220530.rar
 YY：35039918
 QQ群：796042380（加群请备注加群目的，反馈问题或需要高级版本）
+以上联系方式不可用
+大陆用户请搜索QQ频道：战争雷霆银狮救济中心，无法加入请百度查看方式
+海外用户请加入discord频道：https://discord.gg/sCXXfvzvkh
